@@ -1,4 +1,4 @@
 
-Sonata Yoap Rui Hang
+Sonata Yoap
 
 A0184697J
